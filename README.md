@@ -18,6 +18,7 @@ Nicole Hicks
 65 Twin Creek Est.
 Jamestown, Kentucky 42629
 (502) 546-3710
+https://documentation.app4legal.com/display/A4L/App4Legal+User+Guide
 
 
 
